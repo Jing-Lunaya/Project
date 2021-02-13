@@ -1,6 +1,8 @@
 # blog
 
-## Place for my learning journey
+## About
+This blog repo created by Jing-lunaya@Github
+
 
 ## PDF 直接下载 PDF
 [直接下载](https://github.com/Jing-Lunaya/blog/blob/main/%E7%81%B5%E6%80%A7%E7%9A%84/%E6%96%B0%E6%97%B6%E4%BB%A3%20-%20Jing-Lunaya.pdf)
