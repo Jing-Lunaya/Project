@@ -1,6 +1,6 @@
 # “You can learn to detach from the reactions of others and from your…
 
-# “You can learn to detach from the reactions of others and from your own emotions if they take you out of a calm, clear center. Loving yourself means asserting yourself with compassion. When you are willing to show others who you are, you open the door for them to expose their real selves also.”
+ “You can learn to detach from the reactions of others and from your own emotions if they take you out of a calm, clear center. Loving yourself means asserting yourself with compassion. When you are willing to show others who you are, you open the door for them to expose their real selves also.”
 
 “When you form opinions about another person, looking at him or her and saying, for instance, “This person is lazy, or a failure, or has terrible clothes,” you send a message to your subconscious that the world is a place where you had better act in certain ways if you want to be accepted.
  

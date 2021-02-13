@@ -1,6 +1,6 @@
 # “If you spend time feeling bad about something you did, feeling that…
 
-# “If you spend time feeling bad about something you did, feeling that you were not powerful, or that you did not say the right thing, or if you focus on the things you are not, you increase their power over you. Instead, recognize the qualities you have. Take the things you want to become, and remember those times when you demonstrated those qualities. The more you see within yourself what you want to become, the more you will become it.”
+“If you spend time feeling bad about something you did, feeling that you were not powerful, or that you did not say the right thing, or if you focus on the things you are not, you increase their power over you. Instead, recognize the qualities you have. Take the things you want to become, and remember those times when you demonstrated those qualities. The more you see within yourself what you want to become, the more you will become it.”
 
 Excerpt From: Sanaya, Roman. “Living with Joy: Keys to Personal Power and Spiritual Transformation (Earth Life Series).” LuminEssence Productions, 2012-01-25T16:00:00+00:00. Apple Books. 
 This material may be protected by copyright.
