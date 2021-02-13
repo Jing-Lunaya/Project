@@ -9,6 +9,10 @@ To share the love, to enjoy
 
 You are enough, You are unique. You are wonderful! You are awesome!!!
 
+## the pdf
+the content are more than what uploaded here, find them all in the pdf file
+
+
 
 ## another category
 I will write about my own improvement in another category later, where I share more about how I got here.

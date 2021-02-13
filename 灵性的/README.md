@@ -1,16 +1,41 @@
-# Being Your Higher Self
+# 向更高的自己成为更好的自己
 
-## A life path of focus inside of you..
+## 关于
 
-I want to share some content that I learnt before
+这个部分是我读书的一些高亮节选.
+大部分来自奥修,欧林,少部分来自赛斯. 
+这些都是比较古老一点点的高灵,他们的语言都很优美,有着各自的特色.
+完全整本阅读可能会很长很长.
 
-To find the joy of life is to trust the love within you. 
-To share the love, to enjoy
+节选在这里,给喜欢的人. 
 
-You are enough, You are unique. You are wonderful! You are awesome!!!
+## 更多
+本页里有一个 pdf 文件.那里汇聚了更多的我的读书笔记
+经常翻阅总是能让我内心平静.回归自己的内在.感受丰富的存在.
 
 
-## another category
-I will write about my own improvement in another category later, where I share more about how I got here.
-How I learnt thoese. if you want to find some different insprition, can go check it out. I will add the info later when it is finished.
+## 其他
+
+另外会单独分出一个分类,是自己的成长路上的一些领悟
+如果感兴趣的话,稍后会发布并注明.
+
+
+## 关于我
+曾经的我,有许多的不太好的情绪,面对事情容易太感感同身受的过于的设身处地为别人着想.
+每个人都为了别人而活,我也是那样的一个人.结果没有人真的活着,用这样的方式绑架者彼此.
+
+我在这样的环境里成长成熟. 我站了起来. 成为了自己
+不再为了别人而活.只是学着活出我自己的人生.
+
+不再为了第一为了人们眼中的最好最优秀去追求.只是今天做到最好.
+做好每个今天.
+
+我依然喜欢使用头脑. 使用头脑在它应该被使用的地方.
+在放下头脑的时候.头脑就好好的休息
+
+....
+
+继续写下去可以写很长很长.这就简短的大概说一下就好啦.
+具体的个人的人生历程,想要分开单独一个页面. 可能也会如此列出几个章节.然后其他的就放在 pdf 里面
+
 
