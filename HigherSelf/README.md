@@ -12,6 +12,7 @@ You are enough, You are unique. You are wonderful! You are awesome!!!
 ## the pdf
 the content are more than what uploaded here, find them all in the pdf file
 
+[Download](https://github.com/Jing-Lunaya/blog/blob/main/HigherSelf/New%20Age%20-%20Jing-Lunaya.pdf)
 
 
 ## another category
